@@ -1,1 +1,1 @@
-# Ruqsss sk ysf, Raya Izel.
+# Ruqsss skysf, Raya Izel.
